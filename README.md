@@ -9,9 +9,6 @@
 </p>
 <p align="center">
   <a href="https://cupfettii.atabook.org/">
-    <img src="Sans titre 214_20260729233610" alt="Atabook" width="200">
+    <img src="Sans titre 214_20260729233610.png" alt="Atabook" width="200">
   </a>
 </p>
-<p align="center">
-<a href="https://github.com/lermamay1104-hue">ㅤ𝗀𝗈 𝖼𝗁𝖾𝖼𝗄 </a>&nbsp<a
-href="https://github.com/c-utesy"> 𝗍𝗁𝖾𝗂𝗋 𝗉𝗋𝗈𝖿𝗂𝗅𝖾𝗌 ^-^ </a>
