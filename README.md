@@ -1,14 +1,34 @@
+<img src="./ezgif-5636223b99c5f9ee.gif" align="left" width="450">ㅤㅤㅤ
+
 <p align="center">
-  wip wip wip!!!!! 
-</p>
+
+$${\color{#C4E0FF}\text{nyαn ㅤiაㅤ α ㅤfαƚ ㅤℓiƚƚℓe ㅤchυdㅤㅤ}}$$
+
+$${\color{#9D99F8}\text{ㅤㅤi ㅤℓ𑄝ve ㅤmy ㅤm𑄝𑄝ƚა ㅤ˶ᵔ ⩊ ᵔ˶}}$$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="Sans titre 239_20260825223613.png" width="275" align="center">
+
+</div>
+
+<div align="center">
+
+<details>
+<summary>ㅤcℓickㅤ ƚ𑄝ㅤ აee ㅤm𑄝re ㅤinf𑄝აㅤㅤ</summary>
+
+$${\color{#FFD9FF}\text{ㅤmyㅤ nαmeㅤ iა ㅤkiƚƚㅤ 𑄝r ㅤcuρㅤ:Pㅤ}}$$
+$${\color{#F0C0FF}\text{hvyㅤcυdc𑄝mf,ㅤcㅤ+ㅤhㅤfreeℓyㅤ}}$$
+$${\color{#D79FFF}\text{dαrk,ㅤρr𑄝ㅤαndㅤmυℓƚiㅤაhiρρerㅤ♡ㅤ}}$$
+$${\color{#A97EFF}\text{myㅤ𑄝ℓdㅤυაerㅤաαა cυρfeƚƚiiㅤㅤ}}$$
+$${\color{#7167EA}\text{ iㅤυაeㅤ he / აhe / kiƚƚy ㅤ!!ㅤㅤ}}$$
+
+</details>
+
+</div>
+
 <p align="center">
-  <img src="ezgif-14ef7c7980cfdda3.gif" width="650">
-</p>
-<p align="center">
-  <img src="Tumblr_l_1293602103167202.gif" width="400">
-</p>
-<p align="center">
-  <a href="https://cupfettii.atabook.org/">
-    <img src="Sans titre 214_20260729233610.png" alt="Atabook" width="200">
+  <a href="https://cupfettii.atabook.org">
+    <img src="Sans titre 241_20260826005558.png" width="120">
+  </a>
+  <a href="https://tinipaws.straw.page">
+    <img src="Sans titre 241_20260826004953.png" width="120">
   </a>
 </p>
