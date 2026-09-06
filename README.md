@@ -1,4 +1,4 @@
-<img src="./ezgif-5636223b99c5f9ee.gif" align="left" width="450">ㅤㅤㅤ
+<img src="./ezgif-5636223b99c5f9ee.gif" align="left" width="435">ㅤㅤㅤ
 
 <p align="center">
 
