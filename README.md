@@ -14,4 +14,4 @@ ${\textsf{\color{#0E92C3}ㅤ۫ㅤㅤ𝐻𝐞 ﾉ ა𝐡𝐞 ﾉ 𝐤𝐢𝐭�
 <a href="https://kittspaws.straw.page/"> <img src="https://img.shields.io/badge/infos-243BA2?style=for-the-badge&logoColor=#2A180E&labelColor=2A180E"></a>
 
 <p align="center">
-${\textsf{\color{#4DB6D8}wip ok ill continue later,, hi moe ilyu /p}}$
+${\textsf{\color{#EDE9E3}wip ok ill continue later,, hi moe ilyu /p}}$
