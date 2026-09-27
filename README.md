@@ -1,35 +1,17 @@
-<img src="./ezgif-5636223b99c5f9ee.gif" align="left" width="435">ㅤㅤㅤ
-
 <p align="center">
-
-$${\color{#C4E0FF}\text{nyαn ㅤiაㅤ α ㅤfαƚ ㅤℓiƚƚℓe ㅤchυdㅤㅤ}}$$
-
-$${\color{#9D99F8}\text{ㅤㅤi ㅤℓ𑄝ve ㅤmy ㅤm𑄝𑄝ƚა ㅤ˶ᵔ ⩊ ᵔ˶}}$$
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="Sans titre 239_20260825223613.png" width="275" align="center">
-
-</div>
-
-<div align="center">
-
-<details>
-<summary>ㅤcℓickㅤ ƚ𑄝ㅤ აee ㅤm𑄝re ㅤinf𑄝აㅤㅤ</summary>
-
-$${\color{#FFD9FF}\text{ㅤmyㅤ nαmeㅤ iა ㅤkiƚƚㅤ 𑄝r ㅤcuρㅤ:Pㅤ}}$$
-$${\color{#F0C0FF}\text{hvyㅤcυdc𑄝mf,ㅤcㅤ+ㅤhㅤfreeℓyㅤ}}$$
-$${\color{#D79FFF}\text{dαrk,ㅤρr𑄝ㅤ αndㅤmυℓƚiㅤაhiρρerㅤ♡ㅤ}}$$
-$${\color{#A97EFF}\text{myㅤ𑄝ℓdㅤυაerㅤաαა cυρfeƚƚiiㅤㅤ}}$$
-$${\color{#7167EA}\text{ iㅤυაeㅤ he / აhe / kiƚƚy ㅤ!!ㅤㅤ}}$$
-
-</details>
-
-</div>
-
-<p align="center">
-  <a href="https://cupfettii.atabook.org">
-    <img src="Sans titre 241_20260826005558.png" width="120">
-  </a>
-  <a href="https://tinipaws.straw.page">
-    <img src="Sans titre 241_20260826004953.png" width="120">
-  </a>
+  <img src="ezgif-1d1096692ebef385.gif" width="600">
 </p>
 
+<p align="center">
+  <img src="jne1qp.gif"> ${\textsf{\color{#4760E1}ㅤㅤㅤ ׂ   𝒦𝐢𝐭𝐭𝐲ㅤㅤ}}$ ${\textsf{\color{#EDE9E3} 𝐨𝐫 }}$ ${\textsf{\color{#4DB6D8}ㅤㅤ𝒞𝐮𝐩ㅤㅤ❤︎︪𓏼 }}$
+
+<p align="center">
+${\textsf{\color{#FFFFFF}ㅤ۫ㅤㅤ𝐻𝐞 ﾉ ა𝐡𝐞 ﾉ 𝐤𝐢𝐭𝐭𝐲ㅤ ㅤ}}$ <img src="tumblr_18367bbec02d38fcbd7f61e89c27787c_caaaeb4b_75 (1).gif"> ${\textsf{\color{#0E92C3}◜ ㅤㅤ𝐇𝐕𝐘 𝐜𝐮𝐝𝐜𝐨𝐦𝐟ㅤㅤ}}$
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ<a href="https://cupfettii.atabook.org/"> <img src="https://img.shields.io/badge/新book-58BAD9?style=for-the-badge&logoColor=#2A180E&labelColor=2A180E"></a>
+<a href="https://pawfecttt.straw.page/"> <img src="https://img.shields.io/badge/strawpage-6570DC?style=for-the-badge&logoColor=#2A180E&labelColor=2A180E"></a>
+<a href="https://kittspaws.straw.page/"> <img src="https://img.shields.io/badge/infos-243BA2?style=for-the-badge&logoColor=#2A180E&labelColor=2A180E"></a>
+
+<p align="center">
+${\textsf{\color{#4DB6D8}wip ok ill continue later,, hi moe ilyu /p}}$
